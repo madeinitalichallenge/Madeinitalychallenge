@@ -9,9 +9,5 @@ https://www.figma.com/file/KPJjDSeN9bNG8yzkhF1ZBT/Mockup-grafico?type=design&nod
 Project Flowchart 
 https://www.figma.com/file/XDSxhh8Je1w6ObHpk9O0Ge/Anticontraffazione-NFT?type=whiteboard&node-id=0%3A1&t=OjbiHrGIB9Tdk2oQ-1
 
-
-Video di presentazione
-https://gefracharter.it/video.mp4
-
 Video di presentazione
 https://1drv.ms/v/s!AhGDA20EeRGvhsc06-TIfXvbmHet2Q?e=XJ905F
